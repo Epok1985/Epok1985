@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Epok1985
+- 👀 I’m interested in 3D printing
+- 🌱 I’m currently learning automation
+- 💞️ I’m looking to collaborate on 3D printing
